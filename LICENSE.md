@@ -1,4 +1,4 @@
-# 
+# smart Extension for Adobe InDesign for macOS - AI-assisted design and shortcut customization offers the most advanced Adobe InDesign for macOS extension, with AI-assisted design
 
 
 
